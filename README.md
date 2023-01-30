@@ -1,1 +1,1 @@
-# https-Rider767.github.io
+Rider767.github.io
